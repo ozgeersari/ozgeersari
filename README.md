@@ -1,4 +1,4 @@
-### Hi there Ozge.👋
+### Hi there I'm Ozge.👋
 
 <!--
 **ozgeersari/ozgeersari** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
